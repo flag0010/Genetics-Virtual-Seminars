@@ -16,3 +16,7 @@ Registration is free.
 ##Plantae Presents (weekly Wed seminar)
 https://plantae.org/education/plantae_presents/
 Registration is free.
+
+##Symbiosis Weekly Talks (weekly Tues seminar)
+sign-up https://t.co/ISRnJmbL5n?amp=1
+Registration is free.
