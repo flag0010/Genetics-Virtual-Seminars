@@ -36,5 +36,7 @@ follow twitter acct https://twitter.com/VirtualBreeding or
 join google group https://t.co/VNxPYftn8I?amp=1
 
 ## PhyloSeminar (recurring seminar)
-http://phyloseminar.org/. Presented live on YouTube https://www.youtube.com/user/phyloseminar, old seminars can be viewed too http://phyloseminar.org/recorded.html.
+http://phyloseminar.org/. 
+Presented live on YouTube https://www.youtube.com/user/phyloseminar, 
+old seminars can be viewed too http://phyloseminar.org/recorded.html.
 
