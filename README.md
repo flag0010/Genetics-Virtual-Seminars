@@ -40,7 +40,7 @@ join google group https://t.co/VNxPYftn8I?amp=1
 http://phyloseminar.org/. 
 Presented live on YouTube https://www.youtube.com/user/phyloseminar,
 
-old seminars can be viewed too http://phyloseminar.org/recorded.html.## 
+old seminars can be viewed too http://phyloseminar.org/recorded.html
 
 ## Physaloid Seminars (Fridays)
 https://physaloidseminars.weebly.com/
