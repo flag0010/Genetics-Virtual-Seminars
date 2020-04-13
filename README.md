@@ -6,7 +6,7 @@ A running list of virtual seminar opportunities in Genetics and related fields
 ## TAGC - The allied genetic conference (Apr. 23-26, talks online for 30 days after)
 https://genetics-gsa.org/tagc-2020/announcing-tagc-online/
 
-Free, but must register in advance. Registration opening soon.
+Free, but must register in advance. Registration open.
 
 ## European Mathematical Genetics Meeting (Apr. 16-17)
 http://wp.unil.ch/emgm2020/registration/
@@ -18,6 +18,10 @@ http://plantsciencesymposium.ucdavis.edu/
 
 Registration is free.
 
+## 2020 Synapsis Symposium: Bringing Back Biodiversity (Apr 17)
+http://bit.ly/2xYMV4D
+
+The 9th Annual Cornell University Graduate Student Plant Breeding Symposium. Must register to receive zoom link.
 
 # Recurring Events
 
