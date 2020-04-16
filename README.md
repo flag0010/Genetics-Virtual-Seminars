@@ -51,3 +51,9 @@ https://physaloidseminars.weebly.com/
 
 All things Physalis and relatives
 
+## Polyploidy Webinar Series (starts Apr 20, weekly after that)
+https://www.barkerlab.net/polyweb
+
+
+
+
